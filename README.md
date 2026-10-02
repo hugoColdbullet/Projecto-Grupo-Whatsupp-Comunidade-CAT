@@ -1,1 +1,1 @@
-# Projecto-Grupo-Whatsupp-Comunidade-CAT
+# Projecto Grupo Whatsupp Comunidade CAT
